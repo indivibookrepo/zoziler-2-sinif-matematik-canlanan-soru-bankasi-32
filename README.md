@@ -1,0 +1,1 @@
+# zoziler-2-sinif-matematik-canlanan-soru-bankasi-32
